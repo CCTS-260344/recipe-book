@@ -38,3 +38,6 @@
 
 4. **Serve:**
    - Serve the salad immediately, ensuring it's fresh and crisp.
+
+5. **Throw it Away:**
+   - Literally nobody has ever eaten nuts in slad and your kind of odd if you've just seriously considered it.
