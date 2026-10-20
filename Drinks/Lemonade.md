@@ -1,5 +1,5 @@
 ## Recipe for Lemonade ##
-## Ingredients##
+## Ingredients ##
 - A jar 
 - A bottle of water
 ## Instructions ##
