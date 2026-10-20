@@ -8,3 +8,7 @@
 - Get your jar
 - Take a whizz in it
 - Enjoy the Lemonade
+
+
+## **Secret Bonus Point Oppurtunity** ##
+- Share your lemonade with a friend instead of enjoying it to yourself.
