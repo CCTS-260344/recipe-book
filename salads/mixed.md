@@ -41,3 +41,4 @@
 
 5. **Throw it Away:**
    - Literally nobody has ever eaten nuts in slad and your kind of odd if you've just seriously considered it.
+   - It's ok if your wierd though.
